@@ -1,4 +1,4 @@
-### 👋 Hi there, I'm Velagala Pallavi Rani
+ ### 👋 Hi there, I'm Velagala Pallavi Rani
 
 🎓 Final-year B.Tech Computer Science student  
 🏫 Gayatri Vidya Parishad College of Engineering for Women  
